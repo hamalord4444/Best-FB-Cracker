@@ -2,4 +2,5 @@
 
 
 FOR PASSWORD THIS SCRIPT 
-SEND MESSAGE ME IN TELEGRAM >>> @xXx_not_found_xXx
+SEND MESSAGE ME 
+IN TELEGRAM >>> @xXx_not_found_xXx
